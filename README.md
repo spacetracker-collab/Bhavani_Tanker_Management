@@ -11,4 +11,5 @@ https://docs.google.com/spreadsheets/d/e/2PACX-1vRrpjvEZ_q4r6CtfOC9A1sVcuXiom3Du
 
 **Name of the Product**
 
-The product did not have any name. Now based on the character "Bhavani" from "Master", it is named after "Bhavani". Mayy he rest in peace.
+The product did not have any name. Now based on the character "Bhavani" from "Master", it is named after "Bhavani". May he rest in peace. 
+Who is Bhavani : https://www.youtube.com/watch?v=9m4bEm8YmZs (Time 3:27) 
